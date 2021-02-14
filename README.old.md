@@ -1,1 +1,0 @@
-# diemx_intermediate_teoh_eugene
